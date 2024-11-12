@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Leanid2000.github.io/rsschool-cv/cv
